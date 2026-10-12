@@ -1,0 +1,1 @@
+By auditing different goverment institutions and projects including PFM reform and PFM Reform basket fund, I got a direct exposure to public financial management processes, compliance requirements and controls; disciplined documentation; structured engagement with entity management; delivery within time and quality standards
